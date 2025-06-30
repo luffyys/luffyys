@@ -2,3 +2,5 @@
 [guns.lol](https://guns.lol/sunsspace)
 
 ![](https://komarev.com/ghpvc/?username=luffyys&color=blue)
+![Screenshot_20250630-183827~2](https://github.com/user-attachments/assets/9bb7da3d-c587-400c-9af8-30ac1172f703)
+this yalls goat?
