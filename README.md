@@ -4,3 +4,6 @@
 ![](https://komarev.com/ghpvc/?username=luffyys&color=blue)
 ![Screenshot_20250630-183827~2](https://github.com/user-attachments/assets/9bb7da3d-c587-400c-9af8-30ac1172f703)
 this yalls goat?
+<img width="720" height="1329" alt="Screenshot_20250710-144435~2" src="https://github.com/user-attachments/assets/38513438-70ef-47fd-8ae5-dc25010ebb72" />
+<img width="720" height="314" alt="Screenshot_20250710-144455~2" src="https://github.com/user-attachments/assets/fd8d0859-c299-4f6d-a43f-34582437ba3d" />
+KILL NOX 2025
