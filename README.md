@@ -7,3 +7,4 @@
 
 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zk3kqasav3276idzo94kiu70w&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffff00&interchange=false&bar_color=d94f00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
